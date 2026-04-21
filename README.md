@@ -18,7 +18,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا حبيبي نور قلبي هنا
+> في عيونك أرى كل المنى
+> شوق روحي ينادي في الدجى
+> أنت ليالي الحب والهوى
 > ...
 
 📄 **[View Full Lyrics →](./lyrics.txt)**
